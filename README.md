@@ -1,2 +1,2 @@
 # BBWeb
-Walter Jr needs your money for his asshat dad.
+Walter Jr needs your money for his  dad.
